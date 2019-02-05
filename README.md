@@ -1,0 +1,2 @@
+# asfah
+ini akun public
